@@ -59,6 +59,8 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
+- 1/4 flour
+- 1/2 cup rice
 
 Instructions:
 1. Cook spaghetti according to package instructions.
