@@ -113,3 +113,18 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+###Cream Cheese Filling
+
+Ingredients:
+- 1/4 cup butter
+- 4 ounces cream cheese , softened
+- 1 3/4 cups powdered sugar
+-  1/2 teaspoon vanilla extract
+
+Instructions:
+1. Beat together the cream cheese and butter until smooth.
+2. Add powdered sugar and vanilla then mix until smooth. Add more powdered sugar or a splash of milk, if needed, until desired consistency is reached.
+3. Once the cookies have cooled, add a small spoonful of cream cheese filling onto one cookie. Place another cookie on top and press them together to make a cookie sandwich.
+4. Store cookies in an airtight container in the refrigerator for up to 1 week.
+Notes
